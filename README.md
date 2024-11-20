@@ -1,0 +1,1 @@
+对于智普AI中的video2.mp4取自宋雨绮美女老师的soloMV《FREAK》
